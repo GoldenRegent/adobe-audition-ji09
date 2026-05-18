@@ -1,4 +1,4 @@
-# 
+# Elite Vegas Pro para PC executor é o melhor Vegas Pro para PC executor com overlays personalizados e predefinições de exportação. Seguro, confiável e otimizado para máximo
 
 
 
